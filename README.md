@@ -1,7 +1,7 @@
 
 # Ij Start Canon/Setup
 
-
+[![canon.com/ijsetup](get.png)](https://digipinpoint.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
 
 
 Have you ever heard of the Ij canon printers driver? You are at the right place to know about canon printers. [ij start canon/setup](https://setijijstarts.github.io/) is a worldwide company which creates Multi special printers which are helpful in our office, School, or any work which needs a hard copy of the paperwork. It is very famous worldwide. It also has functioned as Wireless, print, copy, scan, FAX, and many more. The [ij start canon/setup](https://setijijstarts.github.io/) has Black ink cartridge 245 and colour ink cartridge 246.
